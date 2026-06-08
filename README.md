@@ -20,7 +20,7 @@
 
 - ⚡ Fun fact **Learning AI while my servers learn to stay online 😎**
 
-- 📄 Know about my experiences **[https://drive.google.com/file/d/1J7L1Zaog3KSU6P1MoDeHJI7AWyEBnpKc/view?usp=drive_link](https://drive.google.com/file/d/1J7L1Zaog3KSU6P1MoDeHJI7AWyEBnpKc/view?usp=drive_link)**
+- 📄 Know about my experiences **[https://drive.google.com/file/d/1J7L1Zaog3KSU6P1MoDeHJI7AWyEBnpKc/view?usp=drive_link](https://drive.google.com/file/d/13A5bynOtlcC7qvfN1zhPyd_nccOzYyHH/view?usp=sharing)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
